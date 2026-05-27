@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Scorpion1510
+- 👋 Hi, I’m @Dravoryx
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning Electronics and Telecommunication.
 
